@@ -1,2 +1,2 @@
 # friendly-memory
-https://site-hcizf4ome.godaddysites.com
+http://site-y4k8zw55c.godaddysites.com
